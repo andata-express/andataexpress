@@ -9,8 +9,11 @@ viaggio di andata outward journey
 
 \ ik-ˈspres\
 to represent in words : state
+
 to give expression to the artistic or creative impulses or abilities of (oneself)
+
 to give or convey a true impression of : show, reflect
+
 to send by express
 
 ---------
