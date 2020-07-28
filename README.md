@@ -1,5 +1,7 @@
 **ANDATA EXPRESS**: 
 
+a multi-modal <text/visual/sound> arts collective creating work for the present and futures.
+
 /an’data/
 (azione / tragitto)
 going, way there
